@@ -17,5 +17,3 @@ menjadikan wawasan untuk maksyarakat agar menjaga tubuh agar tetap sehat dan ter
 mulai memperhatikan konsumsi makanan yang berlebih gula untuk mencegah penyakit diabetes
 
 If you have any suggestions or feedback, please don't hesitate to contact to me in direct message on LinkedIn and Email : andhinirh9@gmail.com https://www.linkedin.com/in/andhini-ramadhani-helwan
-
-#R#EDA #GlobalSuperStore
